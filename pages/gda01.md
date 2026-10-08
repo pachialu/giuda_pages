@@ -3,8 +3,6 @@ layout: page
 title: 1
 ---
 
-------------------------------------------------------------------------
-
 <sup>1–2</sup> Carissimi,  
 vi scrive Giuda. Mi conoscete: sono fratello di Giacomo; siamo cresciuti
 con Gesù, nella stessa casa.  
@@ -64,8 +62,8 @@ Seguono gli istinti e li scambiano per libertà, ma finiscono per esserne divora
 GUAI A LORO!  
 
   * Hanno preso la strada di Caino[^5] l'assassino.
-    * Si sono venduti come Balaam((vedi Numeri cap. 22)), profeta a pagamento. 
-      * Si sono ribellati come Core((vedi Numeri cap. 16)) che con arroganza sfidò Mosè;
+    * Si sono venduti come Balaam[^6], profeta a pagamento. 
+      * Si sono ribellati come Core[^7] che con arroganza sfidò Mosè;
 
 e faranno la stessa fine orrenda! Succede sempre, a tutti quelli che si
 rifiutano di ascoltare.
@@ -79,7 +77,7 @@ Alberi d’autunno, senza frutto, sradicati, due volte morti.
 Onde impazzite che vomitano sulla riva la propria vergogna.  
 Stelle fuori orbita, che non orientano la notte, proiettate verso un buco nero.*
 
-<sup>14-16</sup> Anche di loro parlò Enoch[^6], profeta dei tempi
+<sup>14-16</sup> Anche di loro parlò Enoch[^8], profeta dei tempi
 antichi, quando annunciò che sarebbe venuto il giorno in cui Dio avrebbe
 chiamato tutti a rispondere delle offese commesse contro di Lui. Non
 solo nei fatti, ma anche nelle parole.  
@@ -130,9 +128,12 @@ E così sia.
 
 [^3]: libro Genesi della Bibbia Ebraica
 
-[^4]: nel testo originale, l'autore porta l'esempio di un angelo che
-    discute con Satana
+[^4]: nel testo originale, l'autore porta l'esempio di un angelo che discute con Satana
 
 [^5]: uccise suo fratello Abele, vedi Genesi cap. 4
 
-[^6]: vedi Libro di Enoch
+[^6]: vedi Numeri cap. 22
+
+[^7]: vedi Numeri cap. 16
+
+[^8]: vedi Libro di Enoch
