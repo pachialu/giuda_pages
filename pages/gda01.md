@@ -16,12 +16,11 @@ Vi auguro
 
 - di essere protetti,
   - di vivere la Pace,
-    - di restare nell’Amore; \\
+    - di restare nell’Amore;
 
 la vostra vita sia un bicchiere che trabocca continuamente.
 
-<sup>3</sup> Inizialmente pensavo di parlarvi di cose belle, della
-nostra Salvezza.  
+<sup>3</sup> Inizialmente pensavo di parlarvi di cose belle, della nostra Salvezza.  
 Ma non riesco proprio: devo scrivervi cose più urgenti.
 
 Ci hanno affidato una cosa importante: il Messaggio di Gesù.  
@@ -31,45 +30,42 @@ Dobbiamo tramandarlo così com'è: puro e inalterato.
 
 #### Sviati e Traditori
 
-<sup>4</sup> Sono arrivate tra di voi delle persone. Sono entrate senza
-bussare.  
-  * Parlano di *grazia* per non rispondere delle loro scelte.  
-    * Chiamano *libertà* ciò che li scioglie da ogni responsabilità.  
-      * Gesù, nei loro discorsi, non è più *il Capo* a cui rispondere, ma un
-alibi elegante che giustifica il loro comportamento.  
-E non dovete sorprendervi: era scritto che sarebbero venuti e anche la
-loro condanna.
+<sup>4</sup> Sono arrivate tra di voi delle persone. Sono entrate senza bussare.  
+  - Parlano di *grazia* per non rispondere delle loro scelte.  
+    - Chiamano *libertà* ciò che li scioglie da ogni responsabilità.  
+      - Gesù, nei loro discorsi, non è più *il Capo* a cui rispondere, ma un
+alibi elegante che giustifica il loro comportamento.
 
-<sup>5-7</sup> Vi ricordo tre storie della Bibbia che conoscete molto
-bene.  
-  * il Popolo di Dio salvato dall’Egitto[^1]. Salvato, sì, ma poi
+E non dovete sorprendervi: era scritto che sarebbero venuti e anche la loro condanna.
+
+<sup>5-7</sup> Vi ricordo tre storie della Bibbia che conoscete molto bene.  
+  - il Popolo di Dio salvato dall’Egitto[^1]. Salvato, sì, ma poi
 disperso nel deserto perché non si è fidato del suo Liberatore.  
-    * gli angeli insubordinati[^2]. Abbandonarono il loro posto assegnato,
+    - gli angeli insubordinati[^2]. Abbandonarono il loro posto assegnato,
 e furono cacciati e rinchiusi in una fossa buia, dalla quale ancora oggi
 attendono il Giorno del Giudizio Finale.  
-      * Sodoma e Gomorra[^3]: città che bruciavano di passioni perverse. Come
+      - Sodoma e Gomorra[^3]: città che bruciavano di passioni perverse. Come
 gli altri, la loro fine è un cartello ai bordi della strada: “Benvenuti
 all'Inferno!”
 
 <sup>8-11</sup> Nonostante tutti questi esempi, vediamo ancora gente che
 si affida ai sogni e crede che sentirsi ispirati li autorizzi a
 oltrepassare ogni limite:  
-  * contaminano tutto quello che toccano,
-    * disprezzano ogni autorità, 
-       * parlano con leggerezza di realtà che non conoscono.\\
+  - contaminano tutto quello che toccano,
+    - disprezzano ogni autorità, 
+      - parlano con leggerezza di realtà che non conoscono.
 
-C’è chi, quando discute con una persona più grande, sceglie il rispetto
-e dice: "Te la vedrai con Dio!"[^4]  
+C’è chi, quando discute con una persona più grande, sceglie il rispetto e dice: "Te la vedrai con Dio!"[^4]  
 E c’è chi, invece, alza la voce proprio quando dovrebbe fermarsi.  
 Questi truffatori fanno così: parlano in modo offensivo di cose che non
-conoscono e si rovinano proprio in quello che conoscono meglio. Seguono
-gli istinti e li scambiano per libertà, ma finiscono per esserne
-divorati.
+conoscono e si rovinano proprio in quello che conoscono meglio. 
+Seguono gli istinti e li scambiano per libertà, ma finiscono per esserne divorati.
 
 GUAI A LORO!  
+
   * Hanno preso la strada di Caino[^5] l'assassino.
     * Si sono venduti come Balaam((vedi Numeri cap. 22)), profeta a pagamento. 
-      * Si sono ribellati come Core((vedi Numeri cap. 16)) che con arroganza sfidò Mosè;\\
+      * Si sono ribellati come Core((vedi Numeri cap. 16)) che con arroganza sfidò Mosè;
 
 e faranno la stessa fine orrenda! Succede sempre, a tutti quelli che si
 rifiutano di ascoltare.
@@ -78,13 +74,10 @@ rifiutano di ascoltare.
 queste persone sono come scogli insidiosi, nascosti sotto la
 superficie.  
 
-*
-Nuvole senza pioggia, spinte dal vento.  
+*Nuvole senza pioggia, spinte dal vento.  
 Alberi d’autunno, senza frutto, sradicati, due volte morti.  
 Onde impazzite che vomitano sulla riva la propria vergogna.  
-Stelle fuori orbita, che non orientano la notte, proiettate verso un
-buco nero.  
-*
+Stelle fuori orbita, che non orientano la notte, proiettate verso un buco nero.*
 
 <sup>14-16</sup> Anche di loro parlò Enoch[^6], profeta dei tempi
 antichi, quando annunciò che sarebbe venuto il giorno in cui Dio avrebbe
@@ -94,7 +87,7 @@ Li riconoscete proprio per questi modi:
 
 - mormorano,
   - si lamentano, 
-    - inseguono desideri e fantasie.\\
+    - inseguono desideri e fantasie.
 
 La loro bocca dice cose grandi, gonfie, a proprio vantaggio. Sanno
 lodare, sanno ammirare, quando c’è qualcosa da ottenere.
@@ -116,19 +109,19 @@ ricevuto, quella trasmessa una volta per sempre.
 
 <sup>22-23</sup> Quando incontrate chi dubita, intervenite.  
   * Alcuni vanno aiutati, presi per mano.
-    * Altri vanno strappati al fuoco, senza esitazione.\\
-      * Con altri ancora agite con cautela, tenendo le distanze da tutto ciò che potrebbe contagiarvi e offendere Dio.\\
+    * Altri vanno strappati al fuoco, senza esitazione.
+      * Con altri ancora agite con cautela, tenendo le distanze da tutto ciò che potrebbe contagiarvi e offendere Dio.
 
-<sup>24-25</sup> * A Dio, l'unico che può custodirvi e impedirvi di
-cadere,  
-che può farvi comparire rinnovati e festeggianti davanti alla sua
-gloria,  
+<sup>24-25</sup> 
+*A Dio, l'unico che può custodirvi e impedirvi di cadere,  
+che può farvi comparire rinnovati e festeggianti davanti alla sua gloria,  
 all’unico Dio, nostro Salvatore attraverso Gesù Cristo,  
 siano gloria, maestà, forza e autorità,  
-prima di ogni tempo, ora, e per sempre.  
-*
+prima di ogni tempo, ora, e per sempre.*
 
 E così sia.
+
+------------------------------------------------------------------------
 
 [^1]: libro Esodo della Bibbia Ebraica
 
